@@ -9,3 +9,5 @@ Utilizo em aula a plataforma:
 
 ### Você pode entrar em contato comigo
 @deniz.isadora@escola.pr.gov.br
+
+![](https://media1.tenor.com/m/3foj28twHRoAAAAC/sakura.gif)
